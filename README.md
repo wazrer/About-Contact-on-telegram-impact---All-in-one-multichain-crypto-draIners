@@ -4,7 +4,7 @@
 ## 🪐 Contact (Telegram): [@Impact](https://t.me/drainer_gem)
 
 
-### 🛍 Multichain Price: $750 🏷️ (Full source code) 🛍
+### 🛍 Multichain Price: $2000 🏷️ (Full source code) 🛍
 
 ### 💣 CONTACT [@Impact](https://t.me/drainer_gem)
 
